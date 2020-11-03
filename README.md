@@ -8,3 +8,4 @@ An SEO expert walked into a bar, pub, liquor store, brewery, alcohol, beer, whis
 
 Why did the two functions stop calling each other? Because they had constant arguments.
 
+There are 10 kinds of politicians in this world: small ass holes, and big ass holes.
